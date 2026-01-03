@@ -1,1 +1,1 @@
-# Projet-BALF-Boxe
+# Projet-infinity-Boxe
